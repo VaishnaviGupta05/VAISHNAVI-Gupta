@@ -1,4 +1,4 @@
-# VAISHNAVI-Gupta
+# VAISHNAVI-GUPTA
 ## 👩‍💻 About Me
 
 🎓 Computer Science Student passionate about technology and innovation.
